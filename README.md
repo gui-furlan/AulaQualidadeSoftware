@@ -1,5 +1,3 @@
 # AulaQualidadeSoftware
 AulaQualidadeSoftware
-
-
-Atenção todos os opicionais do oposto do mascilino, estou solicitando adentramento na cavada.
+Atenção todos os opcionais do oposto do masculino, estou solicitando adentramento na cavada.
